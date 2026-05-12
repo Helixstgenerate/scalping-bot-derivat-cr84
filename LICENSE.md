@@ -1,4 +1,4 @@
-# 
+# new scalping bot for derivatives | take-profit + perpetual-trading is the best scalping bot for derivatives, featuring take-profit and perpetual-trading. Smart, fast, and
 
 
 
